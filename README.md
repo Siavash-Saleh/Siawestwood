@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Siawestwood
-- 👀 I’m interested in money, girls, games :))
+- 👀 I’m interested in money, video games, and naughty games 😎😎😎
 - 🌱 I’m currently learning Jupyter and SQL
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate with you whoever you are 😜😜😜
 - 📫 How to reach me siavashnw@gmail.com
 - 😄 Pronouns: Siawestwood
 - ⚡ Fun fact: if there is a flood,  Scarlett Johansson will drown but giraffes not.
