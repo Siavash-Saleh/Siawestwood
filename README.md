@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Siawestwood
 - 👀 I’m interested in money, video games, and naughty games 😎😎😎
-- 🌱 I’m currently learning Jupyter and SQL
+- 🌱 I’m currently learning Jupyter, SQL, Oracle, SAP
 - 💞️ I’m looking to collaborate with you, whoever you are 😜😜😜
 - 📫 How to reach me siavashnw@gmail.com
 - 😄 Pronouns: Siawestwood
