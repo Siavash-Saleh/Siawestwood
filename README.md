@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Siavash
+- 👋 Hi, I’m Siavash, just call me Sia
 - 👀 I’m interested in money, and consistant learning
-- 🌱 I’m currently learning Jupyter, SQL, Oracle, SAP
-- 💞️ I’m looking to collaborate with you, whoever you are 😜😜😜
+- 🌱 I'm eager to work as a Financial Analyst with a strong focus on Data Analysis.
+- 💡 Always open to collaboration—let’s create something amazing together! 🚀😜.
 - 📫 How to reach me siavashsaleh97@gmail.com
